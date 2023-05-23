@@ -1,1 +1,0 @@
-# BurdaBohdan.github.io
